@@ -12,22 +12,28 @@
 ### 1. Сорта винограда
 
 Северные
+
 ![Северные сорта винограда](https://img-fotki.yandex.ru/get/6401/52295072.13/0_7e68e_a3a2a14d_XXXL.jpg)
-![Северные сорта винограда](https://vsaduidoma.com/wp-content/images/2019/07/zimostoikie-sorta-vinograda.jpg)
+
 
 Технические
+
 ![Технические сорта винограда](https://gidfermer.com/wp-content/uploads/2017/05/sorta-vinograda.jpg)
 
 Столовые
+
 ![Столовые сорта винограда](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSglCn67KIOJJunBIURbYCNOEgusMnYpGBmLCM3KcF-d9jk98_Y_M7bWnSr2pJXfQUdegE&usqp=CAU)
 
 Винные
+
 ![Винные сорта](https://www.fermerok.info/wp-content/uploads/2019/02/CHernyj-vinnyj-vinograd.jpg)
 
 Белые
+
 ![Белые сорта](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSixh6h2tk1oDSlF1fHc5GfMg2AFmXCRFEbsDCpyEyfO0EYZmmb8pWslt4Vtvb7Ch9e9Vw&usqp=CAU)
 
 Тёмные
+
 ![Тёмные сорта](https://fermerok.info/wp-content/uploads/2019/01/Stolovye-sorta-chernogo-vinograda.jpg)
 ![Тёмные сорта](https://www.fermerok.info/wp-content/uploads/2019/01/Bessemyannye-sorta-chernogo-vinograda.jpg)
 ![Тёмные сорта](https://www.fermerok.info/wp-content/uploads/2019/01/Vinnye-sorta-chernogo-vinograda.jpg)
@@ -51,7 +57,9 @@
 ### 6. Защита от болезней и вредителей
 
 Болезни
+
 ![Защита от болезней](https://hozvo.ru/photos/storage/bitrix/upload/medialibrary/af7/snimok-ekrana-2015_06_02-v-14.02.10.png)
 
 Вредители
+
 ![Защита от вредителей](https://hozvo.ru/photos/storage/bitrix/upload/medialibrary/391/snimok-ekrana-2015_06_02-v-14.02.27.png)
